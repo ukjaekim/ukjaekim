@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## 문과생인 데린이의 데이터사이언스 
+## 데린이
 <!--
 **ukjaekim/ukjaekim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

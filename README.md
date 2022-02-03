@@ -1,14 +1,12 @@
-![김재욱.jpg](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/9b4f74c0-b19b-489d-a7f5-6be52e02b317/김재욱.jpg)
 
 ## CONTACT
 
 ---
 
-Phone. 010-3299-1519
 
 Mail.  [jaeuk5959@gmail.com](mailto:jaeuk5959@gmail.com)
 
-SNS.  [@ukjaekim](https://www.instagram.com/ukjaekim/)
+
 
 ---
 
